@@ -1,0 +1,1 @@
+# algoritms_hw_10_22okt
